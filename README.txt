@@ -1,0 +1,1 @@
+stehlík je borec
